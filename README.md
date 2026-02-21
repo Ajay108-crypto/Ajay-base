@@ -1,1 +1,3 @@
-# Ajay-base
+#Ajay-base
+thakor
+crypto ai
